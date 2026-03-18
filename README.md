@@ -6,14 +6,18 @@ Advanced heart and lung treatments in Chennai, India. 🌍
 - Heart & lung transplants
 - Minimally invasive cardiac procedures
 - ECMO life support
-- Critical care & more
+- Mechanical circulatory support
+- Critical care & ICU
+- Cardiothoracic vascular surgeries & more
 
-🌐 **Official Website**: https://pulseofuniverse.in/
+🌐 **Official Website**: [https://pulseofuniverse.in](https://pulseofuniverse.in)
 
-📍 Location: Chromepet, Chennai – 600044  
-📞 Phone: +91 7397492472  
-✉️ Email: pulseofuniversectvshltteam@gmail.com
+📍 **Location**: Dr. Rela Institute and Medical Centre, No.7, CLC Work Road, Nagappa Nagar, Chromepet, Chennai – 600044
+
+📞 **Phone**: +91 7397492472
+
+✉️ **Email**: pulseofuniversectvshltteam@gmail.com
 
 Your trusted partner in world-class cardiothoracic care. ❤️🫁
 
-Visit us for consultations and advanced treatments!
+Visit us for consultations, advanced treatments, and compassionate care!
