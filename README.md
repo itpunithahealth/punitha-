@@ -10,7 +10,7 @@ Advanced heart and lung treatments in Chennai, India. 🌍
 - Critical care & ICU
 - Cardiothoracic vascular surgeries & more
 
-🌐 **Official Website**: [https://pulseofuniverse.in](https://pulseofuniverse.in)
+🌐 **Official Website**: https://pulseofuniverse.in
 
 📍 **Location**: Dr. Rela Institute and Medical Centre, No.7, CLC Work Road, Nagappa Nagar, Chromepet, Chennai – 600044
 
